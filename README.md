@@ -1,0 +1,1 @@
+# Plat-dot-NET-32INF-SSI-NP_PROJEKT
